@@ -5,6 +5,14 @@
 - 📫 Email: samuelopicho448@gmail.com
 - 😄 Pronouns: OPS
 - ⚡ Fun fact: "whats the time sam?" ME: coding time.🤣
+- i also do freelancing jobs like:
+    - data entry
+    - data mmining
+    - data extraction
+    - SEO keyword research
+    - graphic designing
+    - and many more
+- am ready for work. just contact
 
 <!---
 opicho448/opicho448 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
